@@ -1,2 +1,2 @@
 # Portfolio-Daniel-2026-TL-
-Moje portfolio odborné blok
+Moje portfolio pro odborný blok
